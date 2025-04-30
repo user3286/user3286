@@ -2,4 +2,5 @@
 
 <!--_special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you👉https://2vc.top/7mD5Z5_eazvgh?i=cop
+https://usdt-staking.ltd/#/?ref=797443
+Ayo bentuk tim Anda dan hasilkan uang bersama!
